@@ -42,4 +42,5 @@ Absolute sovereignty over this text is retained by the author. Any unauthorized 
 ## 📧 Contact & Portfolio
 For inquiries, licensing, validation data, or academic coordination, connect via:
 * **Email:** booksbyprernamehta@gmail.com
-<img width="1024" height="1536" alt="Nanoparticle book front page" src="https://github.com/user-attachments/assets/75efb31f-ec43-4b00-bb99-3212e5978f62" />
+<img width="962" height="1364" alt="WhatsApp Image 2026-10-15 at 8 00 02 PM" src="https://github.com/user-attachments/assets/f9ed2702-91a3-4d5c-b715-5aa6ec57aff8" />
+
